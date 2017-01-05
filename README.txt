@@ -1,1 +1,1 @@
-Hello world!
+The world has forsaken me!
